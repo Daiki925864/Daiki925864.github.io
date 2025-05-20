@@ -1,0 +1,1 @@
+# Daiki925864.github.io
